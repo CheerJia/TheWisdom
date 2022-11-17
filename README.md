@@ -18,7 +18,8 @@ Pr22:12
 
 ## Wisdom / Words of wise
 Pr22:17-21
-Discipline
+
+## Discipline
 Pr22:15
 
 ## Sow and Reap
@@ -52,6 +53,7 @@ Pr22:14
 
 ***Critiria***
 > Better to live on the corner of a roof than to share a house with a nagging wife <sup>9</sup>, proverbs 21
+  
 > Better to live in a wilderness than with a nagging and hot-tempered wife <sup>19</sup>, proverbs 21
 
 Stay away from those who always gets anger and harasses others
@@ -82,6 +84,7 @@ Pr22:4, Humility = fear of the Lord = wealth, honor, and life
 
 
 ## Miscellaneous
+
 ### Secret gift 
 Pr21:14
 
