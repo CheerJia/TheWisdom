@@ -38,10 +38,12 @@ Pr22:10
 
 ***Definition***
 > The arrogance and proud person named “Mocker” acts with excessive arrogance <sup>24</sup>, proverbs 21:24
+
 Excessiveness only invites evil into man. Excessive proud of man turns him to mocker
 
 ***How to handle***
-> When a mocker is punished, the inexperienced become wiser; when one teaches a wise man, he acquires knowledge <sup>11</sup> The righteous one considers the house of the wicked he brings the wicked to ruin <sup>12<sup> , proverbs 21
+> When a mocker is punished, the inexperienced become wiser; when one teaches a wise man, he acquires knowledge <sup>11</sup> The righteous one considers the house of the wicked he brings the wicked to ruin <sup>12<sup>, proverbs 21:11-12
+  
 Learn the lesson to know; consider for discernment
 
 ### The anger 
