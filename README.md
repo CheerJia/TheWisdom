@@ -42,7 +42,7 @@ Pr22:10
 Excessiveness only invites evil into man. Excessive proud of man turns him to mocker
 
 ***How to handle***
-> When a mocker is punished, the inexperienced become wiser; when one teaches a wise man, he acquires knowledge <sup>11</sup> The righteous one considers the house of the wicked he brings the wicked to ruin <sup>12<sup>, proverbs 21:11-12
+> When a mocker is punished, the inexperienced become wiser; when one teaches a wise man, he acquires knowledge <sup>11</sup> The righteous one considers the house of the wicked he brings the wicked to ruin <sup>12</sup>, proverbs 21:11-12
   
 Learn the lesson to know; consider for discernment
 
@@ -54,9 +54,9 @@ Pr22:24-25
 Pr22:14
 
 ***Critiria***
-> Better to live on the corner of a roof than to share a house with a nagging wife <sup>9</sup>, proverbs 21
+> Better to live on the corner of a roof than to share a house with a nagging wife <sup>9</sup>, proverbs 21:9
   
-> Better to live in a wilderness than with a nagging and hot-tempered wife <sup>19</sup>, proverbs 21
+> Better to live in a wilderness than with a nagging and hot-tempered wife <sup>19</sup>, proverbs 21:19
 
 Stay away from those who always gets anger and harasses others
 
